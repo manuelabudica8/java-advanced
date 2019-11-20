@@ -1,2 +1,2 @@
 # java-advanced
-yo
+mor romanii de necaz ca au tiganii aragaz
